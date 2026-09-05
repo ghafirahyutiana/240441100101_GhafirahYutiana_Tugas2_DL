@@ -1,0 +1,1 @@
+# 240441100101_GhafirahYutiana_Tugas2_DL
